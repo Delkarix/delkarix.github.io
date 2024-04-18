@@ -1,1 +1,0 @@
-# delkarix.github.io
